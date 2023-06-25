@@ -1,5 +1,4 @@
-Chapter 8: Conclusion: Reflection on the Power of Acceptance
-============================================================
+# Reflection on the Power of Acceptance
 
 In this book, we have explored the power of acceptance for cultivating inner peace and personal growth. We've discussed various techniques for practicing acceptance, overcoming obstacles to acceptance, and embracing aging and mortality through acceptance. In this final chapter, we'll reflect on the key insights we've gained from this exploration.
 

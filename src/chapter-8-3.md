@@ -1,5 +1,4 @@
-Chapter 7: Acceptance and Well-being: Embracing Aging and Mortality Through Acceptance
-======================================================================================
+# Embracing Aging and Mortality Through Acceptance
 
 In this chapter, we will explore the relationship between acceptance and well-being, particularly in the context of aging and mortality. By cultivating acceptance towards the natural processes of life, we can experience greater inner peace and personal growth.
 

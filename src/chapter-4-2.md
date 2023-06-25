@@ -1,5 +1,4 @@
-Chapter 3: Applying Acceptance in Daily Life: Benefits of Acceptance for Relationships
-======================================================================================
+# Benefits of Acceptance for Relationships
 
 In the previous chapter, we talked about how acceptance can help us cultivate inner peace and personal growth. In this chapter, we will explore how acceptance can benefit our relationships with others.
 

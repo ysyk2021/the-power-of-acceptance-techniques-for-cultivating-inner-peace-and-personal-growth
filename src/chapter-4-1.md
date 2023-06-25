@@ -1,5 +1,4 @@
-Chapter 3: Applying Acceptance in Daily Life: Using Acceptance to Cope with Difficult Emotions
-==============================================================================================
+# Using Acceptance to Cope with Difficult Emotions
 
 In the previous chapter, we discussed how acceptance can benefit our relationships with others. In this chapter, we will explore how acceptance can be used to cope with difficult emotions.
 

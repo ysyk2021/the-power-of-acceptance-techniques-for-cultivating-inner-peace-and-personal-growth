@@ -1,5 +1,4 @@
-Chapter 5: Acceptance and Self-Compassion: Practicing Forgiveness Through Acceptance
-====================================================================================
+# Practicing Forgiveness Through Acceptance
 
 In this chapter, we will explore the relationship between acceptance and self-compassion, particularly in the context of practicing forgiveness. By cultivating acceptance and self-compassion, we can let go of resentment and anger towards ourselves and others, allowing us to experience greater inner peace and personal growth.
 

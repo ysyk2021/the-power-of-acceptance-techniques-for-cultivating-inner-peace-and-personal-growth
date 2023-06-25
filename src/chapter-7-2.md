@@ -1,5 +1,4 @@
-Chapter 6: Acceptance and Resilience: Adapting to Change through Acceptance
-===========================================================================
+# Adapting to Change through Acceptance
 
 In this chapter, we will explore how acceptance can help us cultivate resilience and adapt to change.
 

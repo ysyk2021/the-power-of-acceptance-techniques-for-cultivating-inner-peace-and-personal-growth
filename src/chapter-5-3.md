@@ -1,5 +1,4 @@
-Chapter 4: Overcoming Obstacles to Acceptance: Sustaining a Regular Acceptance Practice
-=======================================================================================
+# Sustaining a Regular Acceptance Practice
 
 Cultivating acceptance is a powerful tool for achieving inner peace and personal growth. However, like any new habit or practice, it can be challenging to sustain a regular acceptance practice over time.
 

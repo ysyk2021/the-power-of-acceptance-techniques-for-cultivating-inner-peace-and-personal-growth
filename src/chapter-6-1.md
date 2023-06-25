@@ -1,5 +1,4 @@
-Chapter 5: Acceptance and Self-Compassion: Cultivating Self-Compassion through Acceptance
-=========================================================================================
+# Cultivating Self-Compassion through Acceptance
 
 In the previous chapters, we discussed how acceptance can benefit our relationships and help us cope with difficult emotions. In this chapter, we will explore how acceptance and self-compassion are interconnected and how we can cultivate self-compassion through acceptance.
 

@@ -1,5 +1,4 @@
-Chapter 7: Acceptance and Well-being: Benefits of Acceptance for Mental and Physical Well-being
-===============================================================================================
+# Benefits of Acceptance for Mental and Physical Well-being
 
 In the previous chapters, we discussed how acceptance can benefit our relationships, help us cope with difficult emotions, and cultivate self-compassion. In this chapter, we will explore how acceptance can promote mental and physical well-being.
 
