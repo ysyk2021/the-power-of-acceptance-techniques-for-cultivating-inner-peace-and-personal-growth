@@ -8,5 +8,4 @@ This book covers a wide range of topics relevant to personal growth, including m
 
 Whether you're struggling with stress or looking to achieve greater fulfillment and purpose in your life, "The Power of Acceptance" is an essential resource. Its practical guidance and real-world examples can help anyone develop the skills and mindset needed to find inner peace and achieve personal growth.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
