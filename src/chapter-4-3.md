@@ -1,4 +1,4 @@
-Chapter 7: Letting Go of Attachment through Acceptance
+Letting Go of Attachment through Acceptance
 ======================================================
 
 In this chapter, we will explore the profound connection between acceptance and letting go of attachment. We will delve into the transformative power of acceptance in releasing attachment, the detrimental effects of attachment, and practical techniques to cultivate acceptance and let go of attachment in order to attain inner peace and foster personal growth.

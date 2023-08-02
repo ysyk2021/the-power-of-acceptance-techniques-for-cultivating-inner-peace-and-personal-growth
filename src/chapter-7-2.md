@@ -1,4 +1,4 @@
-Chapter 8: Adapting to Change Through Acceptance
+Adapting to Change Through Acceptance
 ================================================
 
 Change is an inevitable part of life. We often find ourselves facing unexpected shifts, transitions, and challenges that require us to adapt. In this chapter, we will explore the power of acceptance in navigating change and discuss techniques for embracing and thriving in times of transition.

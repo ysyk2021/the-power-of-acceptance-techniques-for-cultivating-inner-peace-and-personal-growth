@@ -1,4 +1,4 @@
-Chapter 4: Sustaining a Regular Acceptance Practice
+Sustaining a Regular Acceptance Practice
 ===================================================
 
 In this chapter, we will explore practical strategies for sustaining a regular acceptance practice in our daily lives. Developing a consistent acceptance practice is essential for cultivating inner peace, fostering personal growth, and reaping the benefits of acceptance. By incorporating these techniques into our routines, we can make acceptance a natural and integral part of our lives.

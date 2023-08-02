@@ -1,4 +1,4 @@
-Chapter 1: Overview of the Book
+Overview of the Book
 ===============================
 
 Welcome to "The Power of Acceptance: Techniques for Cultivating Inner Peace and Personal Growth." In this book, we will explore the transformative power of acceptance and its profound impact on our lives. By embracing acceptance, we can find inner peace, navigate change, discover meaning and purpose, and foster personal growth.

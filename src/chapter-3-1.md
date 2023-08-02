@@ -1,4 +1,4 @@
-Chapter 3: Mindfulness-Based Techniques for Cultivating Acceptance
+Mindfulness-Based Techniques for Cultivating Acceptance
 ==================================================================
 
 In this chapter, we will explore mindfulness-based techniques that can help cultivate acceptance. Mindfulness is a powerful practice that allows us to bring non-judgmental awareness to the present moment. By integrating mindfulness into our lives, we can develop a deeper sense of acceptance towards ourselves, our experiences, and the world around us.

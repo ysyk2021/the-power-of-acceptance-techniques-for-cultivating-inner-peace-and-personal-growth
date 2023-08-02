@@ -1,4 +1,4 @@
-Chapter 6: Cultivating Self-Compassion through Acceptance
+Cultivating Self-Compassion through Acceptance
 =========================================================
 
 In this chapter, we will explore the profound connection between acceptance and self-compassion. We will delve into the transformative power of self-compassion, the role of acceptance in cultivating it, and practical techniques to nurture self-compassion in your life.

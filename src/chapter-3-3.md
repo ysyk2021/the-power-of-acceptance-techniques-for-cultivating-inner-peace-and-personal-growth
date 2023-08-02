@@ -1,4 +1,4 @@
-Chapter 7: Compassion-Based Techniques for Cultivating Acceptance
+Compassion-Based Techniques for Cultivating Acceptance
 =================================================================
 
 Compassion plays a vital role in cultivating acceptance within ourselves and towards others. In this chapter, we will explore various techniques rooted in compassion that can enhance our ability to accept ourselves, embrace our imperfections, and extend understanding and empathy to others.

@@ -1,4 +1,4 @@
-Chapter 1: Definition and Benefits of Acceptance
+Definition and Benefits of Acceptance
 ================================================
 
 In this chapter, we will explore the fundamental concept of acceptance and delve into its various benefits. We will discuss what acceptance truly means and how it can be applied to cultivate inner peace and foster personal growth.

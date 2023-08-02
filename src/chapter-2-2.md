@@ -1,4 +1,4 @@
-Chapter 3: Differentiating Acceptance from Resignation
+Differentiating Acceptance from Resignation
 ======================================================
 
 In this chapter, we will explore the crucial distinction between acceptance and resignation. Although these concepts may seem similar at first glance, understanding their differences is essential for cultivating inner peace and personal growth. We will delve into the characteristics and effects of acceptance and resignation, highlighting how embracing acceptance can lead to transformative outcomes while resignation hinders progress.

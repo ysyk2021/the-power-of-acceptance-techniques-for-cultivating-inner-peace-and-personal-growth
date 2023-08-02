@@ -1,4 +1,4 @@
-Chapter 3: Using Acceptance to Cope with Difficult Emotions
+Using Acceptance to Cope with Difficult Emotions
 ===========================================================
 
 In this chapter, we will explore the powerful practice of acceptance and how it can be utilized as a tool for coping with difficult emotions. We will delve into the concept of acceptance, its benefits, and practical techniques to cultivate acceptance in your daily life.
