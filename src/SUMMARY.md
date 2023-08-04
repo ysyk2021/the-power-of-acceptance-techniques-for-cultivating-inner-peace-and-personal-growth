@@ -1,7 +1,6 @@
 # Summary
 
 - [Introduction](README.md)
-  - [Overview of the book](chapter-1-1.md)
   - [Importance of acceptance in personal growth and inner peace](chapter-1-2.md)
 - [Chapter 1: Understanding Acceptance](chapter-2.md)
   - [Definition and benefits of acceptance](chapter-2-1.md)
