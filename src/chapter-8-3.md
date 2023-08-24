@@ -1,5 +1,3 @@
-Embracing Aging and Mortality through Acceptance
-===========================================================
 
 In this chapter, we will explore the power of acceptance in embracing the natural processes of aging and mortality. By cultivating acceptance, individuals can develop a positive perspective, find inner peace, and experience personal growth as they navigate these inevitable aspects of life.
 

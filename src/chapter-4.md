@@ -1,5 +1,3 @@
-Chapter 3: Applying Acceptance in Daily Life
-============================================
 
 In this chapter, we will explore how to apply acceptance in daily life. We will discuss using acceptance to cope with difficult emotions, the benefits of acceptance for relationships, and letting go of attachment through acceptance.
 

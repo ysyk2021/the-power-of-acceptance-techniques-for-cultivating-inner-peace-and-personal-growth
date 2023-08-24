@@ -1,5 +1,3 @@
-Chapter 5: Acceptance and Self-Compassion
-=========================================
 
 In this chapter, we will explore the relationship between acceptance and self-compassion. We will discuss how to cultivate self-compassion through acceptance, embrace vulnerability and authenticity through acceptance, and practice forgiveness through acceptance.
 

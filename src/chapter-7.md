@@ -1,5 +1,3 @@
-Chapter 6: Acceptance and Resilience
-====================================
 
 In this chapter, we will explore the relationship between acceptance and resilience. We will discuss building resilience through acceptance, adapting to change through acceptance, and finding meaning and purpose through acceptance.
 

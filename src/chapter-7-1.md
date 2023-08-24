@@ -1,5 +1,3 @@
-Building Resilience Through Acceptance
-=================================================
 
 In this chapter, we will explore how acceptance can be a powerful tool for building resilience in the face of challenges and adversities. Resilience allows us to bounce back from setbacks, adapt to change, and thrive in the midst of difficulties. By cultivating acceptance, we can strengthen our resilience and harness our inner strength to navigate life's ups and downs.
 

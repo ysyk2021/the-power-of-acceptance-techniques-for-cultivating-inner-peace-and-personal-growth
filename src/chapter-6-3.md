@@ -1,5 +1,3 @@
-Practicing Forgiveness through Acceptance
-====================================================
 
 In this chapter, we will explore the profound connection between acceptance and forgiveness. We will delve into the transformative power of forgiveness, the role of acceptance in the process, and practical techniques to cultivate forgiveness in your life.
 

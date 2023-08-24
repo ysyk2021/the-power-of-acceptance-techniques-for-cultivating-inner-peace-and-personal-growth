@@ -1,5 +1,3 @@
-Chapter 7: Acceptance and Well-being
-====================================
 
 In this chapter, we will explore the relationship between acceptance and well-being. We will discuss the benefits of acceptance for mental and physical well-being, managing chronic pain and illness through acceptance, and embracing aging and mortality through acceptance.
 

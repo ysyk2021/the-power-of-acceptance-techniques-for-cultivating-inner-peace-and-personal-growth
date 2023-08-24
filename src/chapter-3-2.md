@@ -1,5 +1,3 @@
-Cognitive-Behavioral Techniques for Cultivating Acceptance
-=====================================================================
 
 In this chapter, we will explore cognitive-behavioral techniques that can help cultivate acceptance in our lives. By understanding and reshaping our thoughts and behaviors, we can develop a mindset of acceptance, transform our perspectives, and foster personal growth and inner peace.
 

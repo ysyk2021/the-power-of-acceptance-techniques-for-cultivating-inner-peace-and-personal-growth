@@ -1,5 +1,3 @@
-Chapter 8: Conclusion
-=====================
 
 In this final chapter, we will reflect on the power of acceptance and provide some final thoughts and recommendations for continuing your journey of personal growth and inner peace through acceptance.
 

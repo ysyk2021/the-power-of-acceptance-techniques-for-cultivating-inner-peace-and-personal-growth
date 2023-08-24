@@ -1,5 +1,3 @@
-Chapter 4: Overcoming Obstacles to Acceptance
-=============================================
 
 In this chapter, we will explore common barriers to practicing acceptance and provide strategies for overcoming these obstacles. We will also discuss how to sustain a regular acceptance practice.
 
